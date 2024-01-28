@@ -24,12 +24,10 @@ Tags: fundraising
 
 Thank you very much!
 
+(Originally posted November 10, 2021)
+
 URL: https://ko-fi.com/post/Please-help-a-friend-go-through-school-N4N1HE6E6
 
 Internet Archive: https://web.archive.org/web/20240128203325/https://ko-fi.com/post/Please-help-a-friend-go-through-school-N4N1HE6E6
 
 archive.today: https://archive.ph/va5Fl
-
-(Originally posted November 10, 2021)
-
-URL: https://ko-fi.com/post/Please-help-a-friend-go-through-school-N4N1HE6E6
