@@ -13,6 +13,6 @@ Tags: happybirthday
 
 URL: https://ko-fi.com/post/A-Night-Out-at-Bellissimo-K3K6LD393
 
-Internet Archive:
+Internet Archive: https://web.archive.org/web/20240129023230/https://ko-fi.com/post/A-Night-Out-at-Bellissimo-K3K6LD393
 
-archive.today: 
+archive.today: https://archive.is/grMtk
